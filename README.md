@@ -1,0 +1,1 @@
+HI this is a landing page for  AI Educational Institute
